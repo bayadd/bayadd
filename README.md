@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **bayadtahaxoshnaw@gmail.com**
 
-- ⚡ Fun fact **Smile, but not every time.**
+- ⚡ Fun fact **Learn by doing it.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
